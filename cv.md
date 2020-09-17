@@ -32,13 +32,13 @@ Viva Liberty Training Center, Certificate of Completion, Certificate
 
 ## Working expierence 
 ### **June 2018 - currently**
-Freelance  
-Individual entrepreneurship / private practice / freelance  
+**Freelance  
+Individual entrepreneurship / private practice / freelance**   
 Website development and promotion  
 SEO optimization for Yandex and Google  
 ### **August 2013 - january 2015**  
-Clothing store "TKT" (Minsk) Retail  
-Marketing and Advertising Manager, Account Manager  
+**Clothing store "TKT" (Minsk) Retail  
+Marketing and Advertising Manager, Account Manager**     
 - Planning and implementation of advertising and marketing activities, control over their implementation
 - Development and ordering of advertising and information products
 - Advertising on the Internet, contextual advertising
@@ -46,8 +46,8 @@ Marketing and Advertising Manager, Account Manager
 - Compilation and maintenance of a client database
 - Order control  
 ### **June 2012 — august 2013**  
-Store chain "My Computer" (Minsk) Electronics, Tool Engineering, Household Appliances, Computers and Office Equipment  
-Marketing Manager  
+**Store chain "My Computer" (Minsk) Electronics, Tool Engineering, Household Appliances, Computers and Office Equipment  
+Marketing Manager**  
 - Planning and implementation of advertising and marketing activities, control over their implementation
 - Drafting advertising texts, articles
 - Market analysis, monitoring of competitors
@@ -56,8 +56,8 @@ Marketing Manager
 - SMM
 - Interaction with contractors and freelancers, preparation of technical specifications  
 ### **September 2009 — may 2010**  
-Unitary Enterprise "Деловые программы" (Minsk) IT, System Integration, Internet  
-Marketing manager  
+**Unitary Enterprise "Деловые программы" (Minsk) IT, System Integration, Internet  
+Marketing manager**  
 - Analysis of the project services market
 - Conclusion of contracts with customers, order management
 - Search for new clients
@@ -65,8 +65,8 @@ Marketing manager
 - Database maintenance
 - Marketing reports and plans  
 ### **September 2007 — august 2009**  
-LTD "BELDTS" (Minsk) IT, System Integration, Internet  
-Marketing manager  
+**LTD "BELDTS" (Minsk) IT, System Integration, Internet  
+Marketing manager**  
 - Analysis of the printing market
 - Experience in prepress preparation (layout of photo magazines, fashion magazines for the Belarusian Fashion Center)
 - Organizing and conducting presentations in Belarus and abroad
@@ -75,10 +75,10 @@ Marketing manager
 - Search for new clients
 - Reporting in German/English, business correspondence
 ### **January 2004 — january 2007**  
-«DTS Service GmbH» IT, System Integration, Internet  
+**«DTS Service GmbH» IT, System Integration, Internet  
 Secretary-reviewer  
 Office Manager (2005)  
-Economist (2005)  
+Economist (2005)**   
 Practice in the representative office of "DTS Service GmbH"  
 - Preparation of documents, reception of visitors, preparation of negotiations and meetings, coordination of business trips.
 
